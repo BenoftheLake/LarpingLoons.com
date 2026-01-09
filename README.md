@@ -1,2 +1,2 @@
 # LarpingLoons.com
-New Larping Loons bus information page
+New Larping Loons eBay/online business information page
